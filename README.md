@@ -1,0 +1,2 @@
+# vizsgaremek
+Dominik,Boti
